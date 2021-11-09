@@ -7,3 +7,4 @@ We are highly focused on the project and paying less attention to price movement
 developers and acclerate the project process. 
 
 We are available on Twitter, Telegram and soon; Reddit.
+0x8d672014fb107cb409dccd9042dda3b97313f4c3
